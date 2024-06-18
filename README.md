@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @veroanggraa
+- 👋 Hi, Vero here!
 - 👀 I’m interested in Mobile
 - 🌱 I’m currently working as Software Engineer @LINE Bank
 - 📫 How to reach me IG:@veroanggra Medium: @veroanggra
